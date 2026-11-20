@@ -62,4 +62,4 @@ If we make material changes to this policy, we will update the date above and, w
 
 ## Contact
 
-Questions or requests: **[YOUR CONTACT EMAIL]**
+Questions or requests: jwcook192@gmail.com
